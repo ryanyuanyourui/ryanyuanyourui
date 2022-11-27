@@ -1,4 +1,4 @@
-大家好，我是 @ryanyuanyourui。[English version](https://github.com/ryanyuanyourui/ryanyuanyourui/blob/main/README-en.md)
+大家好，我是 @ryanyuanyourui。[[English version]](https://github.com/ryanyuanyourui/ryanyuanyourui/blob/main/README-en.md)
 
 十二岁的数竞 && 信竞蒟蒻 && [florr.io](florr.io) 玩家。
 
